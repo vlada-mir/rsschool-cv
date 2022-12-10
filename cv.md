@@ -1,4 +1,4 @@
-# Vlad Aleshkina  
+# Vlada Aleshkina  
 ### Contacts:
 E-mail: vlada.mironova@gmail.com  
 Telegram: @vlada_mir  
